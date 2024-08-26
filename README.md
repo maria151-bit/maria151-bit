@@ -2,7 +2,7 @@
 - 👀 I’m interested in music and tecnology
 - 🌱 I’m currently learning english and espanhol 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me email
 - 😄 Pronouns: she 
 - ⚡ Fun fact: ...
 
